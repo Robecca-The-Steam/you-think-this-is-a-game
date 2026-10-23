@@ -6,5 +6,17 @@ mii after thirsting over felix fire emblem three housesSHO SAID THAT
 this is basically just a fandom list so i can keep track
 
 <img width="900" height="200" alt="felix-fire-emblem" src="https://github.com/user-attachments/assets/74b4f8ac-f045-48a0-b7b2-7455b796287d" />
-this will be sorted by how active i am. i guess <img width="735" height="725" alt="meat buddies!!" src="https://github.com/user-attachments/assets/d4473fdb-e068-4524-848e-40d344db5a7c" />
-this is my favorite felix image. ever
+this will be sorted by how active i am. i guess <img width="100 height="100" alt="meat buddies!!" src="https://github.com/user-attachments/assets/d4473fdb-e068-4524-848e-40d344db5a7c" />
+← this is my favorite felix image. ever ANYWAY
+
+>> actual list starts HERE
+
+> devil may cry
+
+> fire emblem
+
+> final fantasy (mostly 7)
+
+> ace attorney
+
+> 
